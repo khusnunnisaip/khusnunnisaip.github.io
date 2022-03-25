@@ -1,1 +1,1 @@
-# khusnunnisaip.github.io/web design/biodata
+# khusnunnisaip.github.io/web-design/biodata
